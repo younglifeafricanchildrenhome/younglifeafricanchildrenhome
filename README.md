@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Welcome to our Children's Home, a sanctuary of love, care, and hope. Our journey began with a vision to provide a safe and nurturing environment for children in need. Over the years, we have grown into a community dedicated to transforming young lives by offering education, healthcare, and emotional support.
+
+Every child deserves a loving home, and we strive to be that beacon of hope. Through the support of kind-hearted individuals, we continue to make a difference in the lives of many children.
+
+Young life Africa children’s home and orphanage is a home that rescues, rehabilitates, accommodates, educates and feeds orphans and vulnerable children from society. It is located in Kenya, Ruiru district, behind Kenyatta university Ruiru campus. We target children from five to eighteen years. Currently the project has 40 children. Our ultimate goal is create responsible and fulfilled Christian adults out of the children in the project. The project was started in 2003 march 15th by Bishop Tonny Kamande In Huruma with sole objective of helping the disadvantage children living in the slum of Mathare, kambi-moto, Huruma; Kariobangi from all forms of bondage. Later the home was moved to Ruiru to a farm donated by a well-wisher.
